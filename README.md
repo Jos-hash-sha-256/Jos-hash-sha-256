@@ -1,6 +1,6 @@
 ## Hello, I'm Jos-G.😊
 # 💫 About Me:
-🌱 Small Developer<br>⚡ Fun fact: I love the serie "Bojack Horseman".
+🌱 Small Developer<br>⚡ Fun fact:I love the series "Bojack Horseman".<br>🐱‍👤Student Account
 
 
 ## 🌐 Socials:
